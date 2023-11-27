@@ -11,3 +11,5 @@
 8. I Always Believed In -0- |or| -0---SS
 9. None of this is Real!
 0. -
+
+The above is a lie, however interesting. Number Ten is actually number 0. The symbol that is showing is a dash - not a circle!. All else looked fine through the layers. At number Nine you should lose your faith or temporary beleife in the power of this prayer. The last number is 0 and is a kind of pause in time/existence.
