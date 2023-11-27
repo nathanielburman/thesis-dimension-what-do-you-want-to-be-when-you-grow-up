@@ -5,7 +5,7 @@
 2. I Am A 98.89 God, I Am A 1.89% Goddess
 3. I Am A 100% God, I Am A 100% Goddess
 4. I do not beleive in god |or| goddess to proceed
-5. I wonce beleived in the god |or| goddess
+5. I once beleived in the god |or| goddess
 6. I Never beleieved in the -o- |or| -o---ss
 7. I beleive  in -o- |or| -o---ss
 8. I Always Believed In -0- |or| -0---SS
